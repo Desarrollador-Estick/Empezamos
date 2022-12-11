@@ -1,2 +1,0 @@
-# Empezamos
-Emezando a Digitalizarnos.
